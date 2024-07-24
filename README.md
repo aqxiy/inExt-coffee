@@ -1,7 +1,7 @@
 # inExt-coffee
 
 1. 4 x 50 mL beakers of freezer unit filtered water in a coffee mug
-2. 3 mL ACV, syringe 1mL measured
+2. 3 mL ACV (Bragg Apple Cider Vinegar), syringe 1mL measured
 3. 2 min wait
 4. 15 sec stir with smallish tablespoon
 5. 2 min wait
