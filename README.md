@@ -1,5 +1,9 @@
 # inExt-coffee
 
+Template for coffee quality
+
+Something like a return to youth (as a 25 y/o male thinking back to 14-16)
+
 1. 4 x 50 mL beakers of freezer unit filtered water in a coffee mug
 2. 3 mL ACV (Bragg Apple Cider Vinegar), syringe 1mL measured
 3. 2 min wait
