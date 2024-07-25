@@ -2,6 +2,8 @@
 
 Template for coffee quality
 
+And also the first of my coffees I could see myself drinking daily. A natural and contrived consequence of repeat tinkering.
+
 Something like a return to youth (as a 25 y/o male thinking back to 14-16)
 
 1. 4 x 50 mL beakers of freezer unit filtered water in a coffee mug
