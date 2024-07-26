@@ -1,10 +1,13 @@
 # inExt-coffee
 
-Template for coffee quality
+Template for coffee quality. My favorite of the bunch & Something like a return to youth (as a 25 y/o male thinking back to 14-16). 
 
-And also the first of my coffees I could see myself drinking daily. A natural and contrived consequence of repeat tinkering.
+A natural and contrived consequence of repeat tinkering.
 
-Something like a return to youth (as a 25 y/o male thinking back to 14-16)
+Best after a small meal (maybe 7-15 mins)
+
+
+
 
 1. 4 x 50 mL beakers of freezer unit filtered water in a coffee mug
 2. 3 mL ACV (Bragg Apple Cider Vinegar), syringe 1mL measured
