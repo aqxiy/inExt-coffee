@@ -14,7 +14,7 @@ Best after a small meal (maybe 7-15 mins)
 3. 2 min wait
 4. 15 sec stir with smallish tablespoon
 5. 2 min wait
-6. 9 raisins from fridge
+6. 9 raisins from fridge, kept ambient for 5 mins out
 7. 15 sec wait
 8. 15 sec stir
 9. 3 min wait
